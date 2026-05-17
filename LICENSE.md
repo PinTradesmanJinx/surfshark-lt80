@@ -1,10 +1,10 @@
-Mejor Surfshark Cliente | soporte IKEv2 + soporte para torrent es el mejor Surfshark cliente con soporte IKEv2 y soporte para torrent. Seguro y optimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://PinTradesmanJinx.github.io/surfshark-lt80/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
